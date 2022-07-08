@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Gaurav-Naryan-Varma
-- 👀 I’m interested in a WMD Free Zone in the Middle East
+- 👀 I’m interested in US forign affairs
 - 🌱 I’m currently learning programming
 - 💞️ I’m looking to collaborate on coding projects
 - 📫 How to reach me: message on slack or email: gaurav.narayan.varma@gmail.com
